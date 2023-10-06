@@ -1,5 +1,1 @@
-This is your prelim laboratory exam.
-
-Use everything you learned (if there is) in solving this repository.
-
-Goodluck!
+I am Louis Joseph M. Navarro, i'm an IT and i choose IT because technology nowadays is in demand, i'm into technology also and that's why IT is fit on me. I'm an introvert person. When it comes to my personal life, I cherish spending time with my Family and Friends, and we often Travelling. I find solace in Travelling, which helps me unwind and recharge.
